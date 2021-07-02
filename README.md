@@ -1,4 +1,4 @@
-### Hi there 👋
+### I like Sushi🍣 and Karaage🔥🐔🔥
 
 <!--
 **eeenbnb/eeenbnb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
